@@ -36,296 +36,68 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The castel of memorie wherein is conteyned the restoring, augmenting, and conseruing of the memorye 
+
+1. THE CONTENTES.
+
+1. To the right honorable, the Lorde Robert Dudley, Maiſter of the Queenes Maieſties horſe; and Knight of the moſt noble order of the Garter: Willyam Fulwod hartely wiſheth long lyfe, with encreaſe of godlye honour and eternal felicitie.
+
+1. The Tranſlator to the Reader earneſtlye deſyreth grace, mercy, and peace.
+
+1. The Bookes verdicte.
+
 #####Body#####
+What Memorie is, where it floriſheth, how profitable and neceſſary it is.The firſt Chapter.MEmorie i
+    _ What Memorie is, where it floriſheth, how profitable and neceſſary it is.
 
-1. What Memorie is, where it floriſheth, how profitable and neceſſary it is.
+    _ THE SECONDE CHAPTER containeth the cheife cauſes whereby the Memorie is hurte, with their fignes and cures.
 
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
+    _ ❧ The thyrd Chapter ſheweth the principall endomages of the Memorie in what ſort ſoeuer they be.
 
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
+    _ ❧ The fourth Chap. telleth likewiſe the perticular helpes of the Memorie.
 
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
+    _ ❧ The fifte chapter comprehendeth certaine beſt approued and choſen medicinable compounded remedies, and preſeruatiues greatly encreaſing the Memorye.
 
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
+      * ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
 
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
+      * ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
 
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
+      * ¶ Catapotia, or Pilles very effectuall to the Memorie.
 
-    _ ¶ Another Lee for to comfort the head and Memorie.
+      * ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
 
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
+      * A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
 
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
+      * ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
 
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
+      * ¶ Another Lee for to comfort the head and Memorie.
 
-    _ ¶ An Ointment for the ſame purpoſe.
+      * ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
 
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
+      * ¶ Another moſt excellent remedye, but muche more difficile to begotten.
 
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
+      * ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
 
-    _ ¶ To the ſame purpoſe.
+      * ¶ An Ointment for the ſame purpoſe.
 
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
+      * ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
 
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
+      * ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
 
-    _ ¶ Preceptes of remembraunce.
+      * ¶ To the ſame purpoſe.
 
-1. THE SECONDE CHAPTER containeth the cheife cauſes whereby the Memorie is hurte, with their fignes and cures.
+      * ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
 
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
+      * ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
 
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
+    _ The ſixte Chapter expreſſeth Philoſophicall Iudgementes, rules, and preceptes of Remembraunce.
 
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
+      * ¶ Preceptes of remembraunce.
 
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
+    _ ¶ The ſeuenth Chapter treateth in fewe wordes of locall or artificiall Memorie.
 
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
+    _ The Epilogue.
 
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
-
-1. ❧ The thyrd Chapter ſheweth the principall endomages of the Memorie in what ſort ſoeuer they be.
-
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
-
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
-
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
-
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
-
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
-
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
-
-1. ❧ The fourth Chap. telleth likewiſe the perticular helpes of the Memorie.
-
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
-
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
-
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
-
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
-
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
-
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
-
-1. ❧ The fifte chapter comprehendeth certaine beſt approued and choſen medicinable compounded remedies, and preſeruatiues greatly encreaſing the Memorye.
-
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
-
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
-
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
-
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
-
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
-
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
-
-1. The ſixte Chapter expreſſeth Philoſophicall Iudgementes, rules, and preceptes of Remembraunce.
-
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
-
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
-
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
-
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
-
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
-
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
-
-1. ¶ The ſeuenth Chapter treateth in fewe wordes of locall or artificiall Memorie.
-
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
-
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
-
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
-
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
-
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
-
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
-
-1. The Epilogue.
-
-    _ ¶ A Medecine wonderfully helping the Memorie, and lethargie or forgetfulnes: it comforteth the ventricle and all the members weakened by fleume and coldenes.
-
-    _ ❧ Pilles that are good for a languiſhing brayne eſpecially in aged and colde folkes.
-
-    _ ¶ Catapotia, or Pilles very effectuall to the Memorie.
-
-    _ ¶ An odoriferous or ſwete ſwellinge Apple for the Memorie
-
-    _ A moſte proued Experiment for the witte and Memorie, which is ſaid to be of Ariſtotle,
-
-    _ ¶ A comfortynge Water or Lees for the waſhyng of a cold and moyſt head, alſo it helpeth the Memorſe, and it muſt be of the Aſhes of Twigges, or of an Oke, then after let theſe thinges boyle in it.
-
-    _ ¶ Another Lee for to comfort the head and Memorie.
-
-    _ ¶ Another, whiche is verye good for a moyſte head, and is to be vſed once or twyſe in a weke.
-
-    _ ¶ Another moſt excellent remedye, but muche more difficile to begotten.
-
-    _ ¶ Alſo in a colde affectyon thys oyle folowynge ſhalbe notable good.
-
-    _ ¶ An Ointment for the ſame purpoſe.
-
-    _ ¶ An Ointment wherwith you may moderately anoynte your temples onely in colde weather.
-
-    _ ¶ To thende that you may retayne thinges profoundly and perpetually in your Memory, and that you may learne a thinge ſpedely: this haue many great men vſed.
-
-    _ ¶ To the ſame purpoſe.
-
-    _ ¶ An odoriferous or ſweete ſmellyng Apple for the comfortynge of a colde brayne,
-
-    _ ¶ To haue a profounde and good Memorie, or to recouer it again if it be loſt by weakenes or infirmity: it alſo helpeth the giddines
-
-    _ ¶ Preceptes of remembraunce.
+1. ¶ Memorie ſayeth.
 
 **Types of content**
 
